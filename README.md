@@ -3,3 +3,7 @@
 
 
 I'm a big fan of phainon that i kin him so hard and love every ship with him but my fav always be Phaistelle but i don't care about other ship with him and love him equally 
+
+
+
+https://kommodo.ai/i/0xFq1YkEHRjlFVpXSkBa
