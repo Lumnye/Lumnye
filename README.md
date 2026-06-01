@@ -15,3 +15,7 @@ PHAISTELLE MY BELOVED PARENTS!!!!!!
 
 
 ![Phainon Aedes Elysiae](https://files.catbox.moe/157wkv.gif)
+
+
+
+![Phainon Aedes Elysiae](https://www.image2url.com/r2/default/audio/1780338399405-ddced848-e4dc-4967-bff5-c43451891086.mp3)
