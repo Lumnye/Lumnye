@@ -6,4 +6,5 @@ I'm a big fan of phainon that i kin him so hard and love every ship with him but
 
 
 
-https://kommodo.ai/i/0xFq1YkEHRjlFVpXSkBa
+
+(https://cdn.phototourl.com/free/2026-06-01-9394e897-e98e-4395-a5a6-a5fc7cb88ef8.jpg) 
