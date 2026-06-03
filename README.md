@@ -39,7 +39,7 @@
   I'm gonna keep updated about them so yeah that's all lya out
 
 
-  ![HoshiMich](https://files.catbox.moe/fp8lke.gif) 
+  ![HoshiMich](https://files.catbox.moe/l8kj45.gif) 
 
 
 
