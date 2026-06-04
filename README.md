@@ -10,9 +10,9 @@
 
 °He is my first yumeship and always be the one
 
-°I like him since a first day of the anime release and at that time i haven't made any oc to ship with him
+°I like him since a first day of the manga release which on July 3, 2020 and at that time i haven't made any oc to ship with him
 
-°Early 2024 i start make an oc Name 'Michi' who is inspired by one of the keychain of angry cat my friend gift to me
+°Early July 2024 where the year of the anime release, I start make an oc Name 'Michi' who is inspired by one of the keychain of angry cat my friend gift to me
 
 °I know Michi character did not suit in the anime but i don't really care about it so i just make her as my yume oc
 
@@ -23,6 +23,8 @@
 
 
 ![HoshiMich](https://files.catbox.moe/x97ev4.png )
+
+![HoshiMich](https://files.catbox.moe/w702pq.png) 
 
 
 **ABOUT MICHI**
@@ -45,7 +47,7 @@
 ![HoshiMich](https://files.catbox.moe/zi66ir.png) 
 
 
-  I'm gonna keep updated about them so yeah that's all lya out
+  I'm gonna keep updated about them so yeah that's all lya out and all the art you see is made by me so don't take it
 
 
   ![HoshiMich](https://files.catbox.moe/l8kj45.gif) 
