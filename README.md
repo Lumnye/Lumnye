@@ -53,6 +53,6 @@
   ![HoshiMich](https://files.catbox.moe/l8kj45.gif) 
 
 
-(https://hoshimich.straw.page)
+[HoshiMich](https://hoshimich.straw.page)
 
   Tap here for more info of my yumeship on straw page
