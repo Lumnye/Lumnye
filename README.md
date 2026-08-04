@@ -27,6 +27,8 @@
 ![AugustMich](https://files.catbox.moe/p42h9p.png) 
 
 
+[s.page](https://lyalilum.straw.page) 
+[ata.book](lumnye.atabook.org)
 If you sign both s.page and a.book you can get free cookie but if u don't get u can take this lil dumbahh
 ![Mini mich](https://files.catbox.moe/kiqcjj.png)
 
