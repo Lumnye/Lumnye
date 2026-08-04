@@ -27,7 +27,7 @@
 ![AugustMich](https://files.catbox.moe/p42h9p.png) 
 
 
-![Straw.Page](https://lyalilum.straw.page)
-![Ata.book](lumnye.atabook.org) 
+!(https://lyalilum.straw.page)
+!(lumnye.atabook.org) 
 
 If you sign both u get free cookie
