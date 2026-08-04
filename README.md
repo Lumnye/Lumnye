@@ -8,7 +8,7 @@
 
 ****ARE YOU AFRAID??****
 
-![August](https://files.catbox.moe/ikru43.png)
+![August](https://files.catbox.moe/ufgotk.png)
 
 
 ------------------------------------------
