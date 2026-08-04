@@ -28,6 +28,6 @@
 
 
 If you sign both s.page and a.book you can get free cookie but if u don't get u can take this lil dumbahh
-![Mini mich](https://files.catbox.moe/141e1o.png)
+![Mini mich](https://files.catbox.moe/kiqcjj.png)
 
 **all art cred to me** 
