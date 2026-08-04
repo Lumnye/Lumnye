@@ -1,12 +1,17 @@
-***DID YOU STILL LOVE ME?***
+        ***DID YOU STILL LOVE ME?***
 
 
 ------------------------------------------
 
 
-****ARE YOU AFRAID****
+        ****ARE YOU AFRAID??****
 
-![August](https://files.catbox.moe/ufgotk.png)
+![August](https://files.catbox.moe/ikru43.png)
 
 
-***WIP***
+------------------------------------------
+
+
+        ****AM I AFRAID?****
+
+![MICHI](https://files.catbox.moe/zzwj8n.png)
