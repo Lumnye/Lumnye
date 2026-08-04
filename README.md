@@ -15,7 +15,7 @@
 
 ****AM I AFRAID?****
 
-![MICHI](https://files.catbox.moe/zzwj8n.png)
+![MICHI](https://files.catbox.moe/1mhhr7.png)
 
 
 
