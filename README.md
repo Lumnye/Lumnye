@@ -1,21 +1,21 @@
 ***DID YOU STILL LOVE ME?***
 
 
-![AugustMich](https://files.catbox.moe/yq1m8l.png)
+![HoshiMich](https://files.catbox.moe/ksz59j.png)
 
 
 ------------------------------------------
 
-****ARE YOU AFRAID??****
+****HOW MUCH YOU LOVE ME?****
 
-![August](https://files.catbox.moe/ufgotk.png)
+![HoshiMich](https://files.catbox.moe/tayii1.png)
 
 
 ------------------------------------------
 
-****AM I AFRAID?****
+****I LOVE YOU 100****
 
-![MICHI](https://files.catbox.moe/1mhhr7.png)
+![HoshiMich](https://files.catbox.moe/x97ev4.png)
 
 
 
@@ -24,7 +24,7 @@
 
 ****lil doodle of them****
 
-![AugustMich](https://files.catbox.moe/p42h9p.png) 
+![HoshiMich](https://files.catbox.moe/ti7w1v.png) 
 
 
 [s.page](https://lyalilum.straw.page) 
