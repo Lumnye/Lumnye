@@ -13,7 +13,7 @@
 
 ------------------------------------------
 
-****I LOVE YOU 100****
+****I LOVE YOU 3000****
 
 ![HoshiMich](https://files.catbox.moe/w702pq.png)
 
