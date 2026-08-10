@@ -15,7 +15,7 @@
 
 ****I DON'T LOVE YOU(2026)****
 
-![HoshiMich](https://files.catbox.moe/w702pq.png)
+![HoshiMich](https://files.catbox.moe/iqhzj2.png)
 
 
 
@@ -29,6 +29,9 @@
 
 [s.page](https://lyalilum.straw.page) 
 [ata.book](lumnye.atabook.org)
+
+
+All text up there was Marvel reference pls get it
 
 
 If you sign both s.page and a.book you can get free cookie but if u don't get u can take this lil dumbahh
