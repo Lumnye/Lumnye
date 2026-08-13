@@ -1,53 +1,23 @@
-***I LOVE YOU 3000(2019)***
+![phaistelle](https://files.catbox.moe/a8yaim.jpg)
+
+&emsp;
+
+![Stelle](https://files.catbox.moe/m5ppp3.jpg)
+
+&emsp;
+
+![border](https://files.catbox.moe/4uwyec.jpg) 
 
 
-![HoshiMich](https://files.catbox.moe/ksz59j.png)
+$${\color{#F9D976}Shall We Meet Again Partner}$$ 
 
 
-------------------------------------------
+&emsp;&emsp;&emsp;<a href="https://Lumnye.atabook.org/"> <img src="https://files.catbox.moe/6d3flg.jpg" width="300" height="200" alt="Sample"> &emsp;&emsp;<a href="https://lyalilum.straw.page"/> <img src="https://files.catbox.moe/rcrwr0.jpg" width="300" height="200" alt="Sample">
 
-****I LOVE YOU IN EVERY UNIVERSE(2022)****
-
-![HoshiMich](https://files.catbox.moe/tayii1.png)
-
-
-------------------------------------------
-
-****I DON'T LOVE YOU(2026)****
-
-![HoshiMich](https://files.catbox.moe/iqhzj2.png)
-
-
-
-------------------------------------------
-
-
-****lil doodle of them****
-
-![HoshiMich](https://files.catbox.moe/ti7w1v.png) 
-
-
-[s.page](https://lyalilum.straw.page) 
-[ata.book](lumnye.atabook.org)
-
-
-All text up there was Marvel reference pls get it
-
-
-If you sign both s.page and a.book you can get free cookie but if u don't get u can take this lil dumbahh
-![Mini mich](https://files.catbox.moe/kiqcjj.png)
-[yumeship](https://hoshimich.straw.page) 
-
-**all art cred to me** 
-
-[Stelle Ponytown's](https://github.com/pt-fashion)
-
-[More art](https://www.tiktok.com/@hoshimich?_r=1&_t=ZS-98bsg1VoS3h) 
-
-Check my tt acc for more art 
-
-
-------------------------------------------
-
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ingod3dmsvmv2d4ctr63iafhsi&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=true&mode=dark)](https://spotify-github-profile.kittinanx.com/api/view?uid=31ingod3dmsvmv2d4ctr63iafhsi&redirect=true)
+&emsp;
+&emsp;
+![border](https://files.catbox.moe/uwd6c8.jpg) 
+&emsp;
+&emsp;
+[ponytown's Stelle](https://github.com/pt-fashion) Tysm for chose me it's such an honour ^^
+<img src="https://files.catbox.moe/w7gvks.png" width="300" height="200" alt="stelle">
