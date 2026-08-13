@@ -20,4 +20,4 @@ $${Shall&emsp;We&emsp;Meet&emsp;Again&emsp;Partner}$$
 &emsp;
 &emsp;
 [ponytown's Stelle](https://github.com/pt-fashion) Tysm for chose me it's such an honour ^^
-<img src="https://files.catbox.moe/w7gvks.png" width="150" height="150" alt="stelle">
+<img src="https://files.catbox.moe/w7gvks.png" width="50" height="50" alt="stelle">
