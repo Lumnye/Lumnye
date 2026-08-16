@@ -45,5 +45,10 @@ $${Finally&emsp;I&emsp;Find&emsp;You&emsp;}$$
 ![border](https://files.catbox.moe/7tweij.jpg) 
 &emsp;
 &emsp;
+
+<a href="https://x.com/i/status/1924646666826867124"> <img src="https://files.catbox.moe/hvoeug.jpg" alt="sample">
+
+&emsp;
+&emsp;
 [ponytown's Stelle](https://github.com/pt-fashion) Tysm for chose me it's such an honour ^^
 <img src="https://files.catbox.moe/w7gvks.png" width="50" height="50" alt="stelle">
