@@ -6,7 +6,7 @@
 
 &emsp;
 
-![border](https://files.catbox.moe/1wpip8.png) 
+![border](https://files.catbox.moe/r51di1.png) 
 
 
 $${Shall&emsp;We&emsp;Meet&emsp;Again&emsp;Partner}$$ 
@@ -32,7 +32,7 @@ $${Shall&emsp;We&emsp;Meet&emsp;Again&emsp;Partner}$$
 
 &emsp;
 
-![border](https://files.catbox.moe/1wpip8.png) 
+![border](https://files.catbox.moe/r51di1.png) 
 
 
 $${I&emsp;Finally&emsp;Find&emsp;You&emsp;}$$ 
