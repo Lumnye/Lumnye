@@ -52,4 +52,6 @@ $${Finally&emsp;I&emsp;Find&emsp;You&emsp;}$$
 &emsp;
 [ponytown's Stelle](https://github.com/pt-fashion) Tysm for chose me it's such an honour ^^
 <img src="https://files.catbox.moe/w7gvks.png" width="50" height="50" alt="stelle">
-Tap image for fine the source
+
+
+Tap image to fine the original source
