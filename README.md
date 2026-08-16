@@ -16,7 +16,7 @@ $${Shall&emsp;We&emsp;Meet&emsp;Again&emsp;Partner}$$
 
 &emsp;
 &emsp;
-![border](https://files.catbox.moe/7fdz7t.png) 
+![border](https://files.catbox.moe/oz23ta.png) 
 &emsp;
 &emsp;
 
@@ -42,7 +42,7 @@ $${I&emsp;Finally&emsp;Find&emsp;You&emsp;}$$
 
 &emsp;
 &emsp;
-![border](https://files.catbox.moe/7fdz7t.png) 
+![border](https://files.catbox.moe/oz23ta.png) 
 &emsp;
 &emsp;
 
