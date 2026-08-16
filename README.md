@@ -2,7 +2,7 @@
 
 &emsp;
 
-<a href="https://www.tiktok.com/@hoshimich?_r=1&_t=ZS-98vcJo4fIUG"> <img src="https://files.catbox.moe/m5ppp3.jpg" alt="sample">
+<a href="https://pin.it/5e2m84WVE"> <img src="https://files.catbox.moe/m5ppp3.jpg" alt="sample">
 
 &emsp;
 
