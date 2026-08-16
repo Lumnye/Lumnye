@@ -28,7 +28,7 @@ $${Shall&emsp;We&emsp;Meet&emsp;Again&emsp;Partner}$$
 
 &emsp;
 
-![Stelle](https://files.catbox.moe/vyxca8.jpg)
+<a href="https://x.com/i/status/1947980742853570658"> <img src="https://files.catbox.moe/vyxca8.jpg" alt="sample">
 
 &emsp;
 
