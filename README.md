@@ -58,4 +58,4 @@ Tap image to find the original source
 
 ------------------------------------------
 
-[check this user for cool collage](https://pin.it/5e2m84WVE) 
+[check this user for cool moodboard](https://pin.it/5e2m84WVE) 
