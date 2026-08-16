@@ -1,4 +1,4 @@
-![bordee](https://files.catbox.moe/ygt8lm.jpg)
+![border](https://files.catbox.moe/g0j8s0.jpg)
 
 &emsp;
 
@@ -6,7 +6,7 @@
 
 &emsp;
 
-![border](https://files.catbox.moe/v9ho3v.jpg) 
+![border](https://files.catbox.moe/f848kg.jpg) 
 
 
 $${Shall&emsp;We&emsp;Meet&emsp;Again&emsp;Partner}$$ 
@@ -16,7 +16,7 @@ $${Shall&emsp;We&emsp;Meet&emsp;Again&emsp;Partner}$$
 
 &emsp;
 &emsp;
-![border](https://files.catbox.moe/43vuws.jpg) 
+![border](https://files.catbox.moe/7tweij.jpg) 
 &emsp;
 &emsp;
 
@@ -24,7 +24,7 @@ $${Shall&emsp;We&emsp;Meet&emsp;Again&emsp;Partner}$$
 ------------------------------------------
 
 
-![phaistelle](https://files.catbox.moe/g0j8s0.jpg)
+![border](https://files.catbox.moe/g0j8s0.jpg)
 
 &emsp;
 
