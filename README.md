@@ -54,4 +54,4 @@ $${Finally&emsp;I&emsp;Find&emsp;You&emsp;}$$
 <img src="https://files.catbox.moe/w7gvks.png" width="50" height="50" alt="stelle">
 
 
-Tap image to fine the original source
+Tap image to find the original source
