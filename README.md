@@ -35,7 +35,7 @@ $${Shall&emsp;We&emsp;Meet&emsp;Again&emsp;Partner}$$
 ![border](https://files.catbox.moe/f848kg.jpg) 
 
 
-$${I&emsp;Finally&emsp;I&emsp;Find&emsp;You&emsp;}$$ 
+$${I&emsp;Finally&emsp;Find&emsp;You&emsp;}$$ 
 
 
 &emsp;&emsp;&emsp;<a href="https://pin.it/65UferjbA"> <img src="https://files.catbox.moe/7lyrox.jpg" width="150" height="150" alt="Sample"><a href="https://pin.it/65UferjbA"/> <img src="https://files.catbox.moe/l1kc9z.jpg" width="150" height="150" alt="Sample"><a href="https://pin.it/65UferjbA"/> <img src="https://files.catbox.moe/0ajuo3.jpg" width="150" height="150" alt="Sample">
