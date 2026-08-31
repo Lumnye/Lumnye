@@ -25,7 +25,7 @@ $${Shall&emsp;We&emsp;Meet&emsp;Again&emsp;Partner}$$
 ------------------------------------------
 
 
-<a href="https://pin.it/1FU6Zm8iA"> <img src="https://files.catbox.moe/muq5pd.jpg" alt="sample">
+<a href="https://vt.tiktok.com/ZSVThqG3y/"> <img src="https://files.catbox.moe/m4p2ew.jpg" alt="sample">
 
 &emsp;
 &emsp;
