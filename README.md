@@ -2,7 +2,7 @@
 
 &emsp;
 
-<a img src="https://files.catbox.moe/q9t8wb.jpg" alt="sample">
+<a href="https://files.catbox.moe/q9t8wb.jpg"> <img src="https://files.catbox.moe/q9t8wb.jpg" alt="sample">
 
 &emsp;
 
